@@ -7,7 +7,7 @@
 * Scat and watersports
 * Anything I might be uncomfortable with
 
-⋅⋅⋅ Feel free to ask me if you unsure.
+⋅⋅⋅ Feel free to ask me if you unsure and I am open to discussion in this matter.
 
 ### Time:
 Commissions may take up to 2 months depending on the piece, if I will take longer then 6 months to complete your commission *you may ask for a full refund*.
